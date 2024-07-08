@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MartinHelmersen
+- 👀 I’m interested in rock climbing and BJJ
+- 📫 How to reach me martin.helmersen@kiona.com
